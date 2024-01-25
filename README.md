@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Yuvaraj-3604
-- 👀 I’m interested in logo designing 
+- 👀 I’m interested in logo designing and PCB design
 - 🌱 I’m currently learning Electonics and Communication Engineering
 - 📫 How to reach me 12csh2yuvarajperumal.v@gmail.com
 - 😄 Pronouns: He/Him
